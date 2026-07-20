@@ -43,6 +43,8 @@ dont expect me to respond if you talk to me because sometimes im like dead 😞 
 <br>
 big fan of PHIGHTING!, EDDSWORLD, TDU, ROBLOX MYTHS, ROBLOX IN GENERAL ok ok if your apart of these fandoms INT!! if you want <br>
 
+discord is (badfish._) if you want to contact me! <br>
+
 > first time decorating my github how did i dooo <br>
 > hi sour hi tuichuf >_< 
   
