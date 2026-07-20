@@ -20,7 +20,7 @@ HI HI HI HI
 
   Im mostly in pony town (SAFE SERVER #1) around the PHIGHTING!, EDDWORLD, ROBLOX areas! or just around the map (or in islands) <br>
   <br>
-  -DNK (do not kiss) DNC (do not cover) DNRP (do not rp) always- <br>
+  -DNK (do not kiss) DNC (do not copy/cover) DNRP (do not rp) always- <br>
   <br>
   w2i most of the time otherwise i wont see what you said to me! (mostly afk or not looking) <br>
   C+H most of the time unless name says otherwise! (like dni/dniuc/dniuf or dnt)
@@ -40,6 +40,7 @@ go check out my links for more about me in general (and just not ponytown ahaha)
 <br>
 
 dont expect me to respond if you talk to me because sometimes im like dead 😞 <br>
+i allow inspo for my ponies!! just please dont copy lala <br>
 <br>
 big fan of PHIGHTING!, EDDSWORLD, TDU, ROBLOX MYTHS, ROBLOX IN GENERAL ok ok if your apart of these fandoms INT!! if you want <br>
 
