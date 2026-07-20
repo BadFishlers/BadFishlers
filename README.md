@@ -30,6 +30,18 @@ normally around tuichuf/mortisfication and sour! #goodstuff <br>
 go check out my links for more about me in general (and just not ponytown ahaha) <br> 
 </details>
 
+<details <p align="center">
+<summary> $${\color{#5F9CB8} READ2 }$$  </summary>
+<br>
+
+dont expect me to respond if you talk to me because sometimes im like dead 😞 <br>
+<br>
+big fan of PHIGHTING!, EDDSWORLD, TDU, ROBLOX MYTHS, ROBLOX IN GENERAL ok ok if your apart of these fandoms INT!! if you want <br>
+
+> first time decorating my github how did i dooo
+  
+</details>
+
 <p>
   <p align="center">
     <img src="https://github.com/BadFishlers/BadFishlers/blob/fb3f558bc91b5333769f546a5b9852314a7c84b4/zzz.gif" >
