@@ -1,16 +1,45 @@
-## Hi there 👋
 
-<!--
-**BadFishlers/BadFishlers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+<img src="https://github.com/BadFishlers/BadFishlers/blob/1426eb18f55471e7b22d5fe4fc088972ef32ce76/download.png" width="500">
+</p>
 
-Here are some ideas to get you started:
+<p>
+  <p align="center">
+    <img src="https://github.com/BadFishlers/BadFishlers/blob/fb3f558bc91b5333769f546a5b9852314a7c84b4/im%20in%20love.gif" >
+    <img src="https://github.com/BadFishlers/BadFishlers/blob/fb3f558bc91b5333769f546a5b9852314a7c84b4/dream%20traveler.gif" >
+    <img src="https://github.com/BadFishlers/BadFishlers/blob/fb3f558bc91b5333769f546a5b9852314a7c84b4/ani%20social.gif" >
+</p> 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+HI HI HI HI
+</p>
+
+<details <p align="center">
+<summary> $${\color{#5F9CB8} READ }$$  </summary>
+<br>
+
+  Im mostly in pony town (SAFE SERVER #1 around the PHIGHTING!, EDDWORLD, ROBLOX areas! or just around the map (or in islands) <br>
+  <br>
+  -DNK (do not kiss) DNC (do not cover) DNR (do not rp) always- <br>
+  <br>
+  w2i most of the time otherwise i wont see what you said to me! (mostly afk or not looking) <br>
+  C+H most of the time unless name says otherwise! (like dni/dniuc/dniuf or dnt)
+ <br>
+normally around tuichuf/mortisfication and sour! #goodstuff <br> 
+<br>
+go check out my links for more about me in general (and just not ponytown ahaha) <br> 
+</details>
+
+<p>
+  <p align="center">
+    <img src="https://github.com/BadFishlers/BadFishlers/blob/fb3f558bc91b5333769f546a5b9852314a7c84b4/zzz.gif" >
+    <img src="https://github.com/BadFishlers/BadFishlers/blob/7e404c8e9d530e4b5f7db21998f738e83ab6f71d/v40.gif" >
+    <img src="https://github.com/BadFishlers/BadFishlers/blob/7e404c8e9d530e4b5f7db21998f738e83ab6f71d/e82.gif" >
+</p> 
+
+<p align="center">
+<img src="https://github.com/BadFishlers/BadFishlers/blob/1426eb18f55471e7b22d5fe4fc088972ef32ce76/Screenshot%202026-07-20%20134347.png" width="600">
+</p>
+<p align="center">
+<img src="https://github.com/BadFishlers/BadFishlers/blob/c0a27e611486277dc3a6ea7ce3e48c6d54fa1f1c/download%20(1).png" width="500">
+</p>
