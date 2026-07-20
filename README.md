@@ -18,7 +18,7 @@ HI HI HI HI
 <summary> $${\color{#5F9CB8} READ }$$  </summary>
 <br>
 
-  Im mostly in pony town (SAFE SERVER #1) around the PHIGHTING!, EDDWORLD, ROBLOX areas! or just around the map (or in islands) <br>
+  Im mostly in pony town (SAFE SERVER #1) around the PHIGHTING!, EDDSWORLD, ROBLOX areas! or just around the map (or in islands) <br>
   <br>
   -DNK (do not kiss) DNC (do not copy/cover) DNRP (do not rp) always- <br>
   <br>
