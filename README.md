@@ -18,7 +18,7 @@ HI HI HI HI
 <summary> $${\color{#5F9CB8} READ }$$  </summary>
 <br>
 
-  Im mostly in pony town (SAFE SERVER #1 around the PHIGHTING!, EDDWORLD, ROBLOX areas! or just around the map (or in islands) <br>
+  Im mostly in pony town (SAFE SERVER #1) around the PHIGHTING!, EDDWORLD, ROBLOX areas! or just around the map (or in islands) <br>
   <br>
   -DNK (do not kiss) DNC (do not cover) DNR (do not rp) always- <br>
   <br>
@@ -30,6 +30,11 @@ normally around tuichuf/mortisfication and sour! #goodstuff <br>
 go check out my links for more about me in general (and just not ponytown ahaha) <br> 
 </details>
 
+<p>
+  <p align="center">
+    <img src="https://github.com/BadFishlers/BadFishlers/blob/7ed92dc0305f72365c02422ea023ecad453a9a7d/i%20love%20stars.gif" >
+</p> 
+
 <details <p align="center">
 <summary> $${\color{#5F9CB8} READ2 }$$  </summary>
 <br>
@@ -38,7 +43,8 @@ dont expect me to respond if you talk to me because sometimes im like dead 😞 
 <br>
 big fan of PHIGHTING!, EDDSWORLD, TDU, ROBLOX MYTHS, ROBLOX IN GENERAL ok ok if your apart of these fandoms INT!! if you want <br>
 
-> first time decorating my github how did i dooo
+> first time decorating my github how did i dooo <br>
+> hi sour hi tuichuf >_< 
   
 </details>
 
