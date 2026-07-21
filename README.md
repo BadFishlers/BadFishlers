@@ -11,7 +11,7 @@
 </p> 
 
 <p align="center">
-HI HI HI HI
+HI HI HI HI thank you for looking!!
 </p>
 
 <details <p align="center">
