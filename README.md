@@ -25,7 +25,7 @@ HI HI HI HI thank you for looking!!
   w2i most of the time otherwise i wont see what you said to me! (mostly afk or not looking) <br>
   C+H most of the time unless name says otherwise! (like dni/dniuc/dniuf or dnt)
  <br>
-normally around tuichuf/mortisfication and sour! #goodstuff <br> 
+normally around tuichuf/mortisfication (my partner!! <3) and sour! (MY FUNCLEEE) #goodstuff <br> 
 <br>
 go check out my links for more about me in general and my dni!!  <br> 
 </details>
