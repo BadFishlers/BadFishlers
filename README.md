@@ -27,7 +27,7 @@ HI HI HI HI
  <br>
 normally around tuichuf/mortisfication and sour! #goodstuff <br> 
 <br>
-go check out my links for more about me in general (and just not ponytown ahaha) <br> 
+go check out my links for more about me in general and my dni!!  <br> 
 </details>
 
 <p>
