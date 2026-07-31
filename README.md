@@ -26,7 +26,7 @@ $${\color{#2C4C61} BADFISH/BADFISHER }$$ <br>
 
   Im mostly in pony town (SAFE SERVER #1) around the PHIGHTING!, EDDSWORLD, ROBLOX or MCYT area!! or just around the map (or in islands) <br>
   <br>
-  -DNK (do not kiss) DNC (do not copy/cover) DNRP (do not rp) always- <br>
+  -| DNK (do not kiss) DNC (do not copy/cover) DNRP (do not rp) always |- <br>
   <br>
   w2i most of the time otherwise i wont see what you said to me! (mostly afk or not looking) <br>
   C+H most of the time unless name says otherwise! (like dni/dniuc/dniuf or dnt)
