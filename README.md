@@ -14,6 +14,12 @@
 HI HI HI HI thank you for looking!!
 </p>
 
+$${\color{#2C4C61} BADFISH/BADFISHER }$$ <br>
+
+<p align="center">
+| <br>
+ 
+
 <details <p align="center">
 <summary> $${\color{#5F9CB8} READ }$$  </summary>
 <br>
@@ -34,6 +40,9 @@ go check out my links for more about me in general and my dni!!  <br>
   <p align="center">
     <img src="https://github.com/BadFishlers/BadFishlers/blob/7ed92dc0305f72365c02422ea023ecad453a9a7d/i%20love%20stars.gif" >
 </p> 
+
+<p align="center">
+| <br>
 
 <details <p align="center">
 <summary> $${\color{#5F9CB8} READ2 }$$  </summary>
@@ -59,7 +68,7 @@ discord is (badfish._) if you want to contact me! <br>
 </p> 
 
 <p align="center">
-<img src="https://github.com/BadFishlers/BadFishlers/blob/1426eb18f55471e7b22d5fe4fc088972ef32ce76/Screenshot%202026-07-20%20134347.png" width="600">
+<img src="https://github.com/BadFishlers/BadFishlers/blob/50d89bc3a484ebb9f1e48193818dcb51e555ce67/GlAhG20XQAAkFWn.jpg" width="460">
 </p>
 <p align="center">
 <img src="https://github.com/BadFishlers/BadFishlers/blob/c0a27e611486277dc3a6ea7ce3e48c6d54fa1f1c/download%20(1).png" width="500">
