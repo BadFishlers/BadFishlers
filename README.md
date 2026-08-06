@@ -9,19 +9,17 @@
     <img src="https://github.com/BadFishlers/BadFishlers/blob/fb3f558bc91b5333769f546a5b9852314a7c84b4/dream%20traveler.gif" >
     <img src="https://github.com/BadFishlers/BadFishlers/blob/fb3f558bc91b5333769f546a5b9852314a7c84b4/ani%20social.gif" >
 </p> 
-<h6 align="center">
-  
-![](https://komarev.com/ghpvc/?username=BadFishlers&style=plastic&color=2C4C61&label=-𓆟-) <br> </h6>
-<br>
+
 <p align="center">
 HI HI HI HI thank you for looking!!
 </p>
+<h6 align="center">
+  
+![](https://komarev.com/ghpvc/?username=BadFishlers&style=plastic&color=2C4C61&label=-𓆟-) <br> </h6>
 
 $${\color{#2C4C61} BADFISH/BADFISHER }$$ <br>
 
-<p align="center">
-| <br>
- 
+
 
 <details <p align="center">
 <summary> $${\color{#5F9CB8} READ }$$  </summary>
@@ -38,6 +36,9 @@ normally around tuichuf/mortisfication (my partner!! <3) and sour! (MY FUNCLEEE)
 <br>
 go check out my links for more about me in general and my dni!!  <br> 
 </details>
+
+<p align="center">
+| <br>
 
 <p>
   <p align="center">
