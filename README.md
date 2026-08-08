@@ -60,7 +60,7 @@ big fan of PHIGHTING!, EDDSWORLD, TDU, ROBLOX MYTHS, ROBLOX IN GENERAL ok ok if 
 discord is (badfish._) if you want to contact me! <br>
 
 > first time decorating my github how did i dooo <br>
-> hi sour hi tuichuf >_< 
+> hi sour hi tuichuf hi mat >_< 
   
 </details>
 
