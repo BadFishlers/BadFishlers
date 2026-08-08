@@ -32,6 +32,8 @@ $${\color{#2C4C61} BADFISH/BADFISHER }$$ <br>
   <br>
   w2i most of the time otherwise i wont see what you said to me! (mostly afk or not looking) <br>
   C+H most of the time unless name says otherwise! (like dni/dniuc/dniuf or dnt)
+  i allow inspo for my ponies!! dont copy without asking <br>
+  if i move away from you in pony town (while c+h) i probably have to leave! so please dont take it in any way bad! <br>
  <br>
 normally around tuichuf/mortisfication (my partner!! <3) and sour! (MY FUNCLEEE) #goodstuff <br> 
 <br>
@@ -54,7 +56,6 @@ go check out my links for more about me in general and my dni!!  <br>
 <br>
 
 dont expect me to respond if you talk to me because sometimes im like dead 😞 <br>
-i allow inspo for my ponies!! just please dont copy lala <br>
 i follow people who have cool githubs/ponies!! <br>
 <br>
 big fan of PHIGHTING!, EDDSWORLD, TDU, ROBLOX MYTHS, ROBLOX IN GENERAL ok ok if your apart of these fandoms INT!! if you want <br>
