@@ -55,7 +55,7 @@ go check out my links for more about me in general and my dni!!  <br>
 
 dont expect me to respond if you talk to me because sometimes im like dead 😞 <br>
 i allow inspo for my ponies!! just please dont copy lala <br>
-i follow people who have cool githubs!! <br>
+i follow people who have cool githubs/ponies!! <br>
 <br>
 big fan of PHIGHTING!, EDDSWORLD, TDU, ROBLOX MYTHS, ROBLOX IN GENERAL ok ok if your apart of these fandoms INT!! if you want <br>
 
