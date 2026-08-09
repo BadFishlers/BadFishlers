@@ -57,7 +57,7 @@ go check out my links for more about me in general and my dni!!  <br>
 
 i follow people who have cool githubs/ponies!! <br>
 <br>
-big fan of PHIGHTING!, EDDSWORLD, TDU, ROBLOX MYTHS, ROBLOX IN GENERAL ok ok if your apart of these fandoms INT!! if you want <br>
+big fan of PHIGHTING!, EDDSWORLD, TDU, TCF, OT, ROBLOX MYTHS or ROBLOX in general ok ok if your apart of these fandoms INT!! if you want <br>
 
 discord is (badfish._) if you want to contact me! <br>
 
