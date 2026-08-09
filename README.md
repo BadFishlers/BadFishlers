@@ -36,8 +36,7 @@ $${\color{#2C4C61} BADFISH/BADFISHER }$$ <br>
   if i move away from you in pony town (while c+h) i probably have to leave! so please dont take it in any way bad! <br>
  <br>
 normally around tuichuf/mortisfication (my partner!! <3) and sour! (MY FUNCLEEE) #goodstuff <br> 
-<br>
-go check out my links for more about me in general and my dni!!  <br> 
+<br> 
 </details>
 
 <p align="center">
@@ -60,6 +59,7 @@ i follow people who i find cool or have cool githubs/ponies!! <br>
 big fan of PHIGHTING!, EDDSWORLD, TDU, TCF, OT, ROBLOX MYTHS or ROBLOX in general ok ok if your apart of these fandoms INT!! if you want <br>
 
 discord is (badfish._) if you want to contact me! <br>
+go check out my links for more about me in general and my dni!!  <br>
 thank you for reading :P
 
 > first time decorating my github how did i dooo <br>
