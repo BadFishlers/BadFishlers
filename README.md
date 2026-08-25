@@ -1,4 +1,3 @@
-best looked at on pc
 
 <img align="left" src="https://github.com/BadFishlers/BadFishlers/blob/176180142fabc269c71e38dc616c31cc92694c45/Screenshot%202026-08-15%20173840.png" alt="placeholder" width="500" />  
 <details <p align="center">
@@ -34,10 +33,9 @@ thank you for reading :P
  
   
 </details>
-<br> 
-</details>
 
 
-<img align="right" src="https://github.com/BadFishlers/BadFishlers/blob/c59adc105599b0c18109f0408fbefd0b43c1adb4/Screenshot%202026-08-15%20173519.png" alt="placeholder" width="400" />
+
+
 
  
