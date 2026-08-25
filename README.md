@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=BadFishlers&style=plastic&color=edaf61&label=-🪶-) <br> </h6>
 <img align="left" src="https://github.com/BadFishlers/BadFishlers/blob/176180142fabc269c71e38dc616c31cc92694c45/Screenshot%202026-08-15%20173840.png" alt="placeholder" width="500" />  
 <details <p align="center">
-<summary> $${\color{#edaf61} click-this }$$  </summary>
+<summary> $${\color{#edaf61} click-here }$$  </summary>
 <br>
 
   Im mostly in pony town (SAFE SERVER #1) at the phighting area, mcyt hill or near bakery with friends! <br>
@@ -20,7 +20,7 @@ normally around tui/mortisfication (my partner!! <3) and sour! (MY FUNPHEW) mora
 <img align="right" src="https://github.com/BadFishlers/BadFishlers/blob/c59adc105599b0c18109f0408fbefd0b43c1adb4/Screenshot%202026-08-15%20173519.png" alt="placeholder" width="400" />
 <p align="left">
 i follow people who i find cool or have cool githubs/ponies!! <br>
-<br>
+  <br>
 big fan of PHIGHTING!, ROBLOX MYTHS (oc, tcf, tdu!!) <br>
 MCYT (lifesteal and UU) and ROBLOX in general ok ok if <br>
 your apart of these fandoms INT!! if you want <br>
