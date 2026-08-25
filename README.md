@@ -25,7 +25,8 @@ big fan of PHIGHTING!, ROBLOX MYTHS (oc, tcf, tdu!!) <br>
 MCYT (lifesteal and UU) and ROBLOX in general ok ok if <br>
 your apart of these fandoms INT!! if you want <br>
 <p align="left">
-discord is (badfish._) if you want to contact me! <br>
+discord is (badfish._) if you want to contact me outside of  <br>
+  pony town! <br>
   <br>
 go check out my links for more about me in general  <br>
   and my dni!! <br>
