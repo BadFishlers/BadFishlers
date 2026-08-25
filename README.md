@@ -6,7 +6,7 @@
 
   Im mostly in pony town (SAFE SERVER #1) at the phighting area, mcyt hill or near bakery with friends! <br>
   <br>
-  -| DNK (do not kiss) DNC (do not copy) DNRP (do not rp) always |- <br>
+  -| DNC (do not copy) DNRP (do not rp) always |- <br>
   cover only allowed if youre oomf! <br>
   -𓂃🪶𓂃-<br>
   w2i most of the time otherwise i wont see what you said to me! (mostly afk or not looking) so dont expect me to reply sorryy :.( <br>
