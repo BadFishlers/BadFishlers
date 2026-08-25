@@ -27,9 +27,10 @@ your apart of these fandoms INT!! if you want <br>
 <p align="left">
 discord is (badfish._) if you want to contact me! <br>
   <br>
-go check out my links for more about me in general and my dni!!  <br>
+go check out my links for more about me in general  <br>
+  and my dni!! <br>
   <br>
-thank you for reading :P
+thank you for reading ^_^!!!
 <p>
   <p align="center">
     <img src="https://github.com/BadFishlers/BadFishlers/blob/78612887a2bbaec773c63f175ba32302d53986d3/i%20love%20fish.gif" >
