@@ -1,7 +1,7 @@
 
 <img align="left" src="https://github.com/BadFishlers/BadFishlers/blob/176180142fabc269c71e38dc616c31cc92694c45/Screenshot%202026-08-15%20173840.png" alt="placeholder" width="500" />  
 <details <p align="center">
-<summary> $${\color{#F7EF80} click-this }$$  </summary>
+<summary> $${\color{#edaf61} click-this }$$  </summary>
 <br>
 
   Im mostly in pony town (SAFE SERVER #1) at the phighting area, mcyt hill or near bakery with friends! <br>
@@ -30,6 +30,12 @@ discord is (badfish._) if you want to contact me! <br>
 go check out my links for more about me in general and my dni!!  <br>
   <br>
 thank you for reading :P
+<p>
+  <p align="center">
+    <img src="https://github.com/BadFishlers/BadFishlers/blob/78612887a2bbaec773c63f175ba32302d53986d3/i%20love%20fish.gif" >
+    <img src="https://github.com/BadFishlers/BadFishlers/blob/78612887a2bbaec773c63f175ba32302d53986d3/time%20is%20on%20my%20side.gif" >
+    <img src="https://github.com/BadFishlers/BadFishlers/blob/78612887a2bbaec773c63f175ba32302d53986d3/i%20love%20fall.gif" >
+</p> 
 
 </details>
 
