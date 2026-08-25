@@ -1,4 +1,4 @@
-
+![](https://komarev.com/ghpvc/?username=BadFishlers&style=plastic&color=edaf61&label=-🪶-) <br> </h6>
 <img align="left" src="https://github.com/BadFishlers/BadFishlers/blob/176180142fabc269c71e38dc616c31cc92694c45/Screenshot%202026-08-15%20173840.png" alt="placeholder" width="500" />  
 <details <p align="center">
 <summary> $${\color{#edaf61} click-this }$$  </summary>
