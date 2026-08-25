@@ -55,6 +55,7 @@ thank you for reading :P
 <br>
 <br>
 <br>
+<br>
 
 
 <img align="right" src="https://github.com/BadFishlers/BadFishlers/blob/c59adc105599b0c18109f0408fbefd0b43c1adb4/Screenshot%202026-08-15%20173519.png" alt="placeholder" width="400" />
