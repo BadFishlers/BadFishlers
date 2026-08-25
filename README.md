@@ -8,7 +8,7 @@
   <br>
   -| DNK (do not kiss) DNC (do not copy) DNRP (do not rp) always |- <br>
   cover only allowed if youre oomf! <br>
-  <br>
+  -𓂃🪶𓂃-<br>
   w2i most of the time otherwise i wont see what you said to me! (mostly afk or not looking) so dont expect me to reply sorryy :.( <br>
   C+H most of the time unless name says otherwise! (like dni/dniuc/dniuf/dnt)
   ask to take inspo for my ponies! most of the time ill allow it
