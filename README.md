@@ -1,3 +1,5 @@
+best looked at on pc
+
 <img align="left" src="https://github.com/BadFishlers/BadFishlers/blob/176180142fabc269c71e38dc616c31cc92694c45/Screenshot%202026-08-15%20173840.png" alt="placeholder" width="500" />  
 <details <p align="center">
 <summary> $${\color{#F7EF80} READ }$$  </summary>
