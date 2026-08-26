@@ -1,5 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=BadFishlers&style=plastic&color=edaf61&label=-🪶-) <br> </h6>
-<img align="left" src="https://github.com/BadFishlers/BadFishlers/blob/176180142fabc269c71e38dc616c31cc92694c45/Screenshot%202026-08-15%20173840.png" alt="placeholder" width="500" />  
+<img align="left" src="https://github.com/BadFishlers/BadFishlers/blob/176180142fabc269c71e38dc616c31cc92694c45/Screenshot%202026-08-15%20173840.png" alt="manepear crying" width="500" />  
 <details <p align="center">
 <summary> $${\color{#edaf61} click-here }$$  </summary>
 <br>
@@ -18,7 +18,7 @@ normally around tui/mortisfication (my partner!! <3) and sour! (MY FUNPHEW) mora
 <br>
 <br>
 <br>
-<img align="right" src="https://github.com/BadFishlers/BadFishlers/blob/c59adc105599b0c18109f0408fbefd0b43c1adb4/Screenshot%202026-08-15%20173519.png" alt="placeholder" width="400" />
+<img align="right" src="https://github.com/BadFishlers/BadFishlers/blob/c59adc105599b0c18109f0408fbefd0b43c1adb4/Screenshot%202026-08-15%20173519.png" alt="manepear crying" width="400" />
 <p align="left">
 i follow people who i find cool or have cool githubs/ponies!! <br>
   <br>
