@@ -4,7 +4,7 @@
 <summary> $${\color{#edaf61} click-here }$$  </summary>
 <br>
 
-  Im mostly in pony town (SAFE SERVER #1) at the phighting area, mcyt hill or near bakery with friends! <br>
+  Im mostly seen around (SAFE SERVER #1) at the phighting area, mcyt hill or near bakery with friends! <br>
   <br>
   -| DNC (do not copy) DNRP (do not rp) always |- <br>
   cover only allowed if youre oomf! <br>
