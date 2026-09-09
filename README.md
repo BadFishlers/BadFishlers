@@ -10,8 +10,9 @@
   cover only allowed if youre oomf! <br>
   -𓂃🪶𓂃-<br>
   w2i most of the time otherwise i wont see what you said to me! (mostly afk or not looking) so dont expect me to reply sorryy :.( <br>
-  C+H most of the time unless name says otherwise! (like dni/dniuc/dniuf/dnt)
-  ask to take inspo for my ponies! most of the time ill allow it
+  C+H most of the time unless name says otherwise! (like dni/dniuc/dniuf/dnt) <br>
+  ask to take inspo for my ponies! most of the time ill allow it <br>
+ <br>
  <br>
 normally around tui/mortisfication (my partner!! <3) and sour! (MY FUNPHEW) moralz/moralify (yucke) #goodstuff <br> 
 <br>
