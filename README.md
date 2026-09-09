@@ -12,11 +12,10 @@
   w2i most of the time otherwise i wont see what you said to me! (mostly afk or not looking) so dont expect me to reply sorryy :.( <br>
   C+H most of the time unless name says otherwise! (like dni/dniuc/dniuf/dnt)
   ask to take inspo for my ponies! most of the time ill allow it
-  if i move away from you in pony town (while c+h) i probably have to leave! : ( <br>
  <br>
 normally around tui/mortisfication (my partner!! <3) and sour! (MY FUNPHEW) moralz/moralify (yucke) #goodstuff <br> 
 <br>
-<br>
+i do not accept random friend requests from people i do not know longterm!! sorry guys <br>
 <br>
 <img align="right" src="https://github.com/BadFishlers/BadFishlers/blob/c59adc105599b0c18109f0408fbefd0b43c1adb4/Screenshot%202026-08-15%20173519.png" alt="manepear crying" width="400" />
 <p align="left">
