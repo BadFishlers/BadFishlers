@@ -20,8 +20,6 @@ i do not accept random friend requests from people i do not know longterm!! sorr
 <br>
 <img align="right" src="https://github.com/BadFishlers/BadFishlers/blob/c59adc105599b0c18109f0408fbefd0b43c1adb4/Screenshot%202026-08-15%20173519.png" alt="manepear crying" width="400" />
 <p align="left">
-i follow people who i find cool or have cool githubs/ponies!! <br>
-  <br>
 big fan of PHIGHTING!, ROBLOX MYTHS (ot, tcf, tdu!!) <br>
 MCYT (lifesteal and UU) and ROBLOX in general ok ok if <br>
 your apart of these fandoms INT!! if you want <br>
