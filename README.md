@@ -42,5 +42,16 @@ thank you for reading ^_^!!!
 
 
 
+<p align="center"> 
+<a href="https://en.pronouns.page/@BadFish._">pronouns page!!</a>
+  <img align="center" src="https://github.com/BadFishlers/BadFishlers/blob/116b0e778893f31c5e939ad086cc6a95b9c28f06/pngtree-cloudy-to-clear-image_1347408-removebg-preview.png" alt="placeholder" width="30" />
+  <img align="center" src="https://github.com/BadFishlers/BadFishlers/blob/b0d173acdd675435ef6e5e6682ef63fc09584dce/gold1.gif" alt="placeholder" width="30" />
+  <img align="center" src="https://github.com/BadFishlers/BadFishlers/blob/116b0e778893f31c5e939ad086cc6a95b9c28f06/pngtree-cloudy-to-clear-image_1347408-removebg-preview.png" alt="placeholder" width="30" />
+<a href="https://deceasedfish.straw.page">strawpage!!</a>
+</p> 
+
+
+
+
 
  
