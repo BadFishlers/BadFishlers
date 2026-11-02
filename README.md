@@ -2,8 +2,16 @@
 
 <p align="center"> 
 <a href="https://en.pronouns.page/@BadFish._">pronounspge</a>
-<img src="https://github.com/BadFishlers/BadFishlers/blob/e19284f4ea3a7802d87673cad45c1d1a8509c318/red65.gif" alt="placeholder" width="30" >
+  <img src="https://github.com/BadFishlers/BadFishlers/blob/ba839c592f9a2d686130c10816106c1abcaf9f98/pngtree-cloudy-to-clear-image_1347408-removebg-preview.png" alt="placeholder" width="10" >
+<img src="https://github.com/BadFishlers/BadFishlers/blob/ba839c592f9a2d686130c10816106c1abcaf9f98/red298.gif" alt="placeholder" width="27" >
+  <img src="https://github.com/BadFishlers/BadFishlers/blob/ba839c592f9a2d686130c10816106c1abcaf9f98/pngtree-cloudy-to-clear-image_1347408-removebg-preview.png" alt="placeholder" width="10" >
 <a href="https://deceasedfish.straw.page">strwpge</a>
 </p>
 
+<details <p align="center">
+<summary> $${\color{#ffffff} gee }$$  </summary>
+<br>
+
+  placeholder
+</details>
 
