@@ -16,6 +16,7 @@
 
  anyones free to c+h most of the time unless dniu-- is in my name <br>
  i get scared to talk most of the time <br>
+sleeping = afk
 
  dubs <br>
 </details>
