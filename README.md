@@ -40,5 +40,5 @@ sleeping = afk
 <br>
 <br>
 <p align="center">
-<img src="https://github.com/BadFishlers/BadFishlers/blob/ec73961cdcf6eb0ac32b7b38ca98b9e311eb136a/red150.gif" alt="placeholder" width="600" />
+<img src="https://github.com/BadFishlers/BadFishlers/blob/a8ee26807621b0d5fd93eb31360473d24afb001e/red74.gif" alt="placeholder" width="600" />
 
