@@ -14,7 +14,7 @@
 <br>
 
 <details <p align="center">
-<summary> $${\color{#661b1b} - }$$  </summary>
+<summary> $${\color{#661b1b}   }$$  </summary>
 <br>
 
  anyones free to c+h most of the time unless dniu-- is in my name <br>
