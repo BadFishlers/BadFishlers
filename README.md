@@ -8,10 +8,15 @@
 <a href="https://deceasedfish.straw.page">strwpge</a>
 </p>
 
-<details <p align="center">
-<summary> $${\color{#ffffff} gee }$$  </summary>
 <br>
 
-  placeholder
+<details <p align="center">
+<summary> $${\color{#661b1b} - }$$  </summary>
+<br>
+
+ anyones free to c+h most of the time unless dniu-- is in my name <br>
+ i get scared to talk most of the time <br>
+
+ dubs <br>
 </details>
 
