@@ -8,7 +8,9 @@
   <img src="https://github.com/BadFishlers/BadFishlers/blob/ba839c592f9a2d686130c10816106c1abcaf9f98/pngtree-cloudy-to-clear-image_1347408-removebg-preview.png" alt="placeholder" width="10" >
 <img src="https://github.com/BadFishlers/BadFishlers/blob/ba839c592f9a2d686130c10816106c1abcaf9f98/red298.gif" alt="placeholder" width="27" >
   <img src="https://github.com/BadFishlers/BadFishlers/blob/ba839c592f9a2d686130c10816106c1abcaf9f98/pngtree-cloudy-to-clear-image_1347408-removebg-preview.png" alt="placeholder" width="10" >
-<a href="https://deceasedfish.straw.page">strwpge</a>
+<a href="https://deceasedfish.straw.page">strwpge</a:hover {
+  color: #ff4500; 
+>
 </p>
 
 <br>
