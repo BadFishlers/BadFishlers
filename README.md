@@ -21,3 +21,5 @@ sleeping = afk
  dubs <br>
 </details>
 
+<img align="center" src="https://github.com/BadFishlers/BadFishlers/blob/a8ee26807621b0d5fd93eb31360473d24afb001e/red74.gif" alt="placeholder" width="300" />
+
