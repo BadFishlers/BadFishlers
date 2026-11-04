@@ -3,7 +3,7 @@
 <p align="center"> <img src=https://github.com/BadFishlers/BadFishlers/blob/c0d991c82fc2076b35d3848e345dca1cd7340c0a/2.png width="300">
 <br>
 <br>
-<p align="center"> $\color{#f3d194}{𑣲}$ $\color{#e7a397}{Look}$ $\color{#f3d194}{,}$ $\color{#a33d85}{if}$ $\color{#f3d194}{youre}$ $\color{#e7a397}{gonna}$ $\color{#a33d85}{hit}$ $\color{#f3d194}{on}$ $\color{#e7a397}{my}$ $\color{#a33d85}{sister}$ $\color{#f3d194}{,}$ $\color{#f3d194}{you}$ $\color{#e7a397}{can}$ $\color{#a33d85}{hit}$ $\color{#f3d194}{on}$ $\color{#e7a397}{me}$ $\color{#a33d85}{too}$ $\color{#f3d194}{.}$
+<p align="center"> $\color{#f3d194}{𑣲}$ $\color{#e7a397}{Yea}$ $\color{#f3d194}{we}$ $\color{#a33d85}{look}$ $\color{#f3d194}{exactly}$ $\color{#e7a397}{the}$ $\color{#a33d85}{same}$ $\color{#f3d194}{on}$ $\color{#e7a397}{my}$ $\color{#a33d85}{sister}$ $\color{#f3d194}{,}$ $\color{#f3d194}{you}$ $\color{#e7a397}{can}$ $\color{#a33d85}{hit}$ $\color{#f3d194}{on}$ $\color{#e7a397}{me}$ $\color{#a33d85}{too}$ $\color{#f3d194}{.}$
 <p align="center">
 $\color{#f3d194}{Cuz}$ $\color{#e7a397}{we}$ $\color{#a33d85}{look}$ $\color{#f3d194}{the}$ $\color{#e7a397}{same}$ $\color{#f3d194}{!}$ $\color{#f3d194}{ৎ}$ </p>
 <br>
