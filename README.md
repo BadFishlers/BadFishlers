@@ -1,3 +1,6 @@
+<p align="center">
+<img src=https://github.com/BadFishlers/BadFishlers/blob/a07639c1ff05f81c0c43020b3f23f699d9cf445d/gold160(2).png alt="poop" width="800"/>
+
 <img align="left" src=https://github.com/BadFishlers/BadFishlers/blob/c0d991c82fc2076b35d3848e345dca1cd7340c0a/image-removebg-preview%20(26).png alt="poop" width="420"/>
 <br>
 <p align="center"> <img src=https://github.com/BadFishlers/BadFishlers/blob/c0d991c82fc2076b35d3848e345dca1cd7340c0a/2.png width="300">
