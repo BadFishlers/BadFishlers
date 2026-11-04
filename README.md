@@ -1,5 +1,5 @@
 <p align="center">
-<img src=https://github.com/BadFishlers/BadFishlers/blob/a07639c1ff05f81c0c43020b3f23f699d9cf445d/gold160(2).png alt="poop" width="800"/>
+<img src=https://github.com/BadFishlers/BadFishlers/blob/6b11c3b2328275d3d3da30ac6e21a7823dee2a42/image_2026-11-05_004228805-Photoroom.png alt="poop" width="900"/>
 
 <img align="left" src=https://github.com/BadFishlers/BadFishlers/blob/c0d991c82fc2076b35d3848e345dca1cd7340c0a/image-removebg-preview%20(26).png alt="poop" width="420"/>
 <br>
